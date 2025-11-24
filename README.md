@@ -1,2 +1,0 @@
-# EUAMOELA
-amo minha nene
